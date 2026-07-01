@@ -1,10 +1,10 @@
 # Curatio Pharmaceuticals — 国产设备供应商询价邮件
 
-准备人：Kevin Zou ｜ 地点：迈阿密, FL, USA
+准备人：Kevin Zou（Curatio Pharmaceuticals 中国区采购负责人）｜ 地点：迈阿密, FL, USA
 需求设备：① 桌面式蠕动灌装机（对标 Watson-Marlow Flexicon PF7）② 分装/复溶泵（对标 Baxter/Baxa Repeater）
 
 联系方式（所有邮件统一署名）：
-- Kevin Zou — Curatio Pharmaceuticals（美国迈阿密）
+- Kevin Zou — Curatio Pharmaceuticals（美国迈阿密）中国区采购负责人
 - 电话 / WhatsApp / 微信：18666660548
 - 邮箱：cloudsheep@gmail.com
 
@@ -36,7 +36,7 @@
 
 您好：
 
-我是 Kevin Zou，美国佛州迈阿密 Curatio Pharmaceuticals（复方制药/保健品实验室）。实验室正在筹建，之后会扩建，想找长期供应商。
+我是 Kevin Zou，美国佛州迈阿密 Curatio Pharmaceuticals（复方制药/保健品实验室）的中国区采购负责人，负责公司在中国的设备采购。实验室正在筹建，之后会扩建，想找长期供应商。
 
 想了解两台机器的价格：
 1. 桌面式蠕动灌装机，用于西林瓶、瓶子、注射器灌装，最好自动灌装带自动加塞。
@@ -45,7 +45,7 @@
 麻烦每台帮我确认：CE 和 GMP/FDA 文件、能否提供 IQ/OQ/PQ、是否支持美国电压（120V/240V 60Hz）、接液管材是不是 USP Class VI 铂金硅胶、美国有没有售后和备件、美元报价、付款方式、起订量、交期、以及到迈阿密的运输条款。有完整产品目录也发我，后面还会采购其他设备。
 
 谢谢！
-Kevin Zou
+Kevin Zou（中国区采购负责人）
 Curatio Pharmaceuticals（美国迈阿密）
 电话/WhatsApp/微信：18666660548
 邮箱：cloudsheep@gmail.com
@@ -61,7 +61,7 @@ Curatio Pharmaceuticals（美国迈阿密）
 
 您好：
 
-我是 Kevin Zou，美国佛州迈阿密 Curatio Pharmaceuticals（复方制药/保健品实验室）。实验室正在筹建，之后会扩建，想找长期供应商。
+我是 Kevin Zou，美国佛州迈阿密 Curatio Pharmaceuticals（复方制药/保健品实验室）的中国区采购负责人，负责公司在中国的设备采购。实验室正在筹建，之后会扩建，想找长期供应商。
 
 想了解两台机器的价格：
 1. 桌面式蠕动灌装系统，用于西林瓶/瓶子/注射器灌装（你们的 DS600 应该合适），最好自动灌装带自动加塞。
@@ -70,7 +70,7 @@ Curatio Pharmaceuticals（美国迈阿密）
 麻烦每台帮我确认：CE 和 GMP/FDA 文件、能否提供 IQ/OQ/PQ、是否支持美国电压（120V/240V 60Hz）、接液管材是不是 USP Class VI 铂金硅胶、美国有没有售后和备件、美元报价、付款方式、起订量、交期、以及到迈阿密的运输条款。有完整产品目录也发我，后面还会采购其他设备。
 
 谢谢！
-Kevin Zou
+Kevin Zou（中国区采购负责人）
 Curatio Pharmaceuticals（美国迈阿密）
 电话/WhatsApp/微信：18666660548
 邮箱：cloudsheep@gmail.com
@@ -85,7 +85,7 @@ Curatio Pharmaceuticals（美国迈阿密）
 
 您好：
 
-我是 Kevin Zou，美国佛州迈阿密 Curatio Pharmaceuticals（复方制药/保健品实验室）。实验室正在筹建，之后会扩建，想找长期供应商。
+我是 Kevin Zou，美国佛州迈阿密 Curatio Pharmaceuticals（复方制药/保健品实验室）的中国区采购负责人，负责公司在中国的设备采购。实验室正在筹建，之后会扩建，想找长期供应商。
 
 想了解两台机器的价格：
 1. 桌面式蠕动灌装系统，用于西林瓶/瓶子/注射器灌装（比如你们的 GS600 / GZ600），最好自动灌装带自动加塞。
@@ -94,7 +94,7 @@ Curatio Pharmaceuticals（美国迈阿密）
 麻烦每台帮我确认：CE 和 GMP/FDA 文件、能否提供 IQ/OQ/PQ、是否支持美国电压（120V/240V 60Hz）、接液管材是不是 USP Class VI 铂金硅胶、美国有没有售后和备件、美元报价、付款方式、起订量、交期、以及到迈阿密的运输条款。有完整产品目录也发我，后面还会采购其他设备。
 
 谢谢！
-Kevin Zou
+Kevin Zou（中国区采购负责人）
 Curatio Pharmaceuticals（美国迈阿密）
 电话/WhatsApp/微信：18666660548
 邮箱：cloudsheep@gmail.com
@@ -109,7 +109,7 @@ Curatio Pharmaceuticals（美国迈阿密）
 
 您好：
 
-我是 Kevin Zou，美国佛州迈阿密 Curatio Pharmaceuticals（复方制药/保健品实验室）。实验室正在筹建，之后会扩建，想找长期供应商。
+我是 Kevin Zou，美国佛州迈阿密 Curatio Pharmaceuticals（复方制药/保健品实验室）的中国区采购负责人，负责公司在中国的设备采购。实验室正在筹建，之后会扩建，想找长期供应商。
 
 想了解两台机器的价格：
 1. 用于西林瓶/瓶子/注射器的灌装设备——我需要的是接近整机的灌装工站（最好自动灌装带自动加塞），麻烦告诉我你们除了 BT600FY/FC 这类灌装泵，有没有更接近成套灌装机的方案。
@@ -118,7 +118,7 @@ Curatio Pharmaceuticals（美国迈阿密）
 麻烦每台帮我确认：CE 和 GMP/FDA 文件、能否提供 IQ/OQ/PQ、是否支持美国电压（120V/240V 60Hz）、接液管材是不是 USP Class VI 铂金硅胶、美国有没有售后和备件、美元报价、付款方式、起订量、交期、以及到迈阿密的运输条款。
 
 谢谢！
-Kevin Zou
+Kevin Zou（中国区采购负责人）
 Curatio Pharmaceuticals（美国迈阿密）
 电话/WhatsApp/微信：18666660548
 邮箱：cloudsheep@gmail.com
@@ -135,11 +135,11 @@ Curatio Pharmaceuticals（美国迈阿密）
 
 您好 Doreen：
 
-我是 Kevin Zou，美国佛州迈阿密 Curatio Pharmaceuticals（复方制药/保健品实验室）。想了解你们分装/计量蠕动泵（Peristaltic Metering / Dosing Pump）的价格，用于液体定量分装。
+我是 Kevin Zou，美国佛州迈阿密 Curatio Pharmaceuticals（复方制药/保健品实验室）的中国区采购负责人，负责公司在中国的设备采购。想了解你们分装/计量蠕动泵（Peristaltic Metering / Dosing Pump）的价格，用于液体定量分装。
 
 麻烦确认：CE 和 GMP/FDA 文件、能否提供 IQ/OQ/PQ、是否支持美国电压（120V/240V 60Hz）、接液管材是不是 USP Class VI 铂金硅胶、美国有没有售后、美元报价、付款方式、起订量、交期、到迈阿密运输条款。谢谢！
 
-Kevin Zou｜Curatio Pharmaceuticals（美国迈阿密）
+Kevin Zou（中国区采购负责人）｜Curatio Pharmaceuticals（美国迈阿密）
 电话/WhatsApp/微信：18666660548｜邮箱：cloudsheep@gmail.com
 
 ---
@@ -152,11 +152,11 @@ Kevin Zou｜Curatio Pharmaceuticals（美国迈阿密）
 
 您好：
 
-我是 Kevin Zou，美国佛州迈阿密 Curatio Pharmaceuticals（复方制药/保健品实验室）。想了解你们分装/定量泵（比如带脚踏的 UIP 系列）的价格，用于实验室液体定量分装。
+我是 Kevin Zou，美国佛州迈阿密 Curatio Pharmaceuticals（复方制药/保健品实验室）的中国区采购负责人，负责公司在中国的设备采购。想了解你们分装/定量泵（比如带脚踏的 UIP 系列）的价格，用于实验室液体定量分装。
 
 麻烦确认：CE 认证、是否支持美国电压（120V/240V 60Hz）、接液管材是不是 USP Class VI 铂金硅胶、美国售后/备件、美元报价、起订量、交期、到迈阿密运输条款。谢谢！
 
-Kevin Zou｜Curatio Pharmaceuticals（美国迈阿密）
+Kevin Zou（中国区采购负责人）｜Curatio Pharmaceuticals（美国迈阿密）
 电话/WhatsApp/微信：18666660548｜邮箱：cloudsheep@gmail.com
 
 ---
@@ -169,7 +169,7 @@ Kevin Zou｜Curatio Pharmaceuticals（美国迈阿密）
 
 Hi,
 
-I'm Kevin Zou with Curatio Pharmaceuticals, a compounding pharmacy and supplement lab in Miami, FL. We're setting up our lab now and plan to expand to a larger facility, so we're looking for a couple of reliable suppliers to work with long term.
+I'm Kevin Zou, the China procurement lead for Curatio Pharmaceuticals, a compounding pharmacy and supplement lab in Miami, FL. I handle our equipment sourcing in China. We're setting up our lab now and plan to expand to a larger facility, so we're looking for a couple of reliable suppliers to work with long term.
 
 I'd like to price out two machines:
 
@@ -187,6 +187,7 @@ If you have a full catalog, please send it — we'll be needing other equipment 
 
 Thanks,
 Kevin Zou
+China Procurement Lead
 Curatio Pharmaceuticals — Miami, FL
 Phone / WhatsApp: 18666660548
 Email: cloudsheep@gmail.com
